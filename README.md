@@ -36,6 +36,8 @@ http://ir.rzd.ru/static/public/ru?STRUCTURE_ID=66
 
 МТС: https://finance.rambler.ru/realty/40613368-chistyy-dolg-mts-vo-ii-kvartale-sokratilsya-na-4-7/
    
+https://bcs-express.ru/novosti-i-analitika/lidery-i-autsaidery-rossiiskogo-riteila
+
 
 ГЛАВА 9
 
